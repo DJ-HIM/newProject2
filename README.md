@@ -1,0 +1,8 @@
+# *_Cats_*
+![cat](cat-1727444643965-4210.jpg)
+>Temporal range: 9,500 years ago – present
+
+The **felis catus**, also known as the _house cat_ or _domestic cat_, is a tiny **carnivorous mammal** that has been tamed. Within the **Felidae** family, it is the sole domesticated species. Recent developments in genetics and archeology have demonstrated that the domestication of cats took place in the Near East circa _7500 BC_. It is frequently kept as a farm cat and house pet, but it also roams free as a feral cat, staying away from people. The cat is prized by people for its company and its capacity to eliminate rodents; its retractable claws are designed to take down small game such as **mice** and **rats**. Its physique is _robust_ and _flexible_, its reflexes are _fast_, its teeth are _keen_, and its sense of _smell_ and _night vision_ are excellent. This species is sociable, but a **lone predator** and a 
+**crepuscular hunter**. Body language and vocalizations such as _meowing_, _purring_, _trilling_, _hissing_, _growling_, and grunting are examples of how cats communicate. It is capable of hearing sounds that are too high in frequency or too weak for human hearing, as those produced by small mammals. Pheromones are sensed and secreted by it.
+
+In temperate regions, female domestic cats can give birth to kittens from spring to late fall, and in tropical regions, they can do so year-round. The typical litter size consists of two to five kittens. Cat fancy is the pastime of breeding domestic cats to compete in shows as recognized animals.
